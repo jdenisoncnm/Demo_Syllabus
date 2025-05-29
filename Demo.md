@@ -1,3 +1,4 @@
+
 **CNM School of Liberal Arts (LA)**
 
 **PHIL 1120: Logic, Reasoning, and Critical Thinking**
